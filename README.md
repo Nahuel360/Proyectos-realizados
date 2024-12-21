@@ -1,2 +1,2 @@
 # Proyectos-realizados
- Proyectos más importantes realizados por Olguin Nahuel en el ambito laboral y universatario
+ Proyectos más importantes realizados por Nahuel Olguin en el ambito laboral y universitario
